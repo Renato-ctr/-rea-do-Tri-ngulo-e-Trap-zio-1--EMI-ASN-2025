@@ -1,0 +1,1 @@
+# -rea-do-Tri-ngulo-e-Trap-zio-1--EMI-ASN-2025
